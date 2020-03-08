@@ -1,2 +1,0 @@
-# foka
-bamboo kunstroof
